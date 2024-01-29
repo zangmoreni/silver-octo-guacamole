@@ -1,0 +1,1 @@
+Even though a polar bears fur looks white it is actually colourless and is made with hollow tubes. The reason the bear looks white is because the rough inner surface of the tubes make light scatter and reflect at many different angles which gives the white appearance
