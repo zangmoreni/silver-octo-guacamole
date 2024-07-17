@@ -1,0 +1,1 @@
+The long fibres that are found in bananas are excellent in making paper. The long fibres that are found in the banana plant can make the banana fibre paper approximately 3000 times stronger than regular paper
